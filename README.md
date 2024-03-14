@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [achowdhury.netlify.app](achowdhury.netlify.app)
 
-- 💬 Ask me about **React,Javascript,NextJs,Java**
+- 💬 Ask me about **React,Javascript,NextJs,Java,Docker**
 
 - 📫 How to reach me **arpantio15@gmail.com**
 
