@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **arpantio15@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1X3W2ZcLq6fJ66naxS04EUjHVJ29RdwFQ/view](https://drive.google.com/file/d/1X3W2ZcLq6fJ66naxS04EUjHVJ29RdwFQ/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Lx_dmTFkMN-4z5kMDQH30zNLQdo97VkG/view?usp=sharing](https://drive.google.com/file/d/1Lx_dmTFkMN-4z5kMDQH30zNLQdo97VkG/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
